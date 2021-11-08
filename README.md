@@ -1,4 +1,7 @@
 
+# ❌ It will be released for download soon, please be patient. ❌
+
+
  ## How to remove hwid and shadow bans 
  
  
